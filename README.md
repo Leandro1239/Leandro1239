@@ -1,0 +1,1 @@
+- 👋 Hi, I'm Lúcio Leandro and I'm currently specializing in data analysis and looking for job offers or freelancers in this area.
